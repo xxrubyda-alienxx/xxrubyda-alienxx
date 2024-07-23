@@ -8,7 +8,7 @@ hello! im ruby <b>(she/it)</b>
 i usually hang out in the pjsk/vocaloid areas in the eng safe server, but sometimes you can find me elsewhere. im usually afk while playing, i'd prefer if you whispered to interact with me :'D
 <br> 
 
-i am a really big fan of vocaloid, touhou, nichijou, bocchi the rock, ace attorney, project sekai, and much more! 
+i am a really big fan of vocaloid, touhou, <b>nichijou</b>, bocchi the rock, <b>ace attorney</b>, project sekai, and much more! 
 <br>
 feel free to shoot me a whisper if you ever want to talk :3 
 <br>
