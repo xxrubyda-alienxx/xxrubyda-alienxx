@@ -13,4 +13,6 @@ i am a really big fan of vocaloid, touhou, <b>nichijou</b>, bocchi the rock, <b>
 feel free to shoot me a whisper if you ever want to talk :3 
 <br>
 
-i dont nessessarily have a "dni", but i may not respond to hazbin hotel, dream, wilbur soot, or south park fans >_> 
+i dont nessessarily have a "dni", but i may not respond to hazbin hotel, dream, wilbur soot, or south park fans >_> <br>
+<br>
+<img src="https://files.catbox.moe/f80bpj.gif" width="130" height="145"><img src="https://files.catbox.moe/hv7w2t.gif" width="" height="145"><img src="https://files.catbox.moe/61kduw.gif" width="" height="145"><img src="https://files.catbox.moe/v6zxnt.gif" width="130" height="145"> 
