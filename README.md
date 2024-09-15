@@ -6,6 +6,8 @@ hello! im ruby <b>(she/it)</b> ![](https://komarev.com/ghpvc/?username=xxrubyda-
 <img src=https://64.media.tumblr.com/c16dbc2f380e2696036f30442c1a2742/cd7fba09e864177d-1b/s100x200/f50a672f5efccb1630a2dc653844ba431e4e11b6.gif></img> <img src=https://64.media.tumblr.com/2942bcc809951c372f53bb05d346b2e8/04b98bc6f19fc712-40/s100x200/82a7e1779a70b9e2f162cf5baada0a5d588d43dc.gifv></img> <img src=https://64.media.tumblr.com/04d91875f146de4e6e42aff877b9b1f7/34d2e1c3607433d0-9c/s100x200/6dfc425a578276156a37ea46dafbae56bd2bfe0c.gifv> <img src=https://files.catbox.moe/03pw44.gif>
 
 i usually hang out in the pjsk/vocaloid and ace attorney areas in the eng safe server, but sometimes you can find me elsewhere. im usually afk while playing, i'd prefer if you whispered to interact with me. my chat is usually on "personal" :'D
+<br>
+
 feel free to cuddle/hug if youre from the same fandom, but no promises that i will end up talking a lot ^_^" 
 <br> 
 
