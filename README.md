@@ -4,7 +4,7 @@
 
 <p><b>ruby / she/it</b></p>
 
-<p>dont interact with me im evil</p>
+<p>dont interact with me im evil. i have bad social anxiety and am usually offtab so dont expect responses </p>
 
 <a href="https://rubyda-alien.straw.page/">strawpage meeee!!!!</a> 
 
