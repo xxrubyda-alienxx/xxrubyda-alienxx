@@ -5,7 +5,6 @@
 <p><b>ruby / she/it</b></p>
 
 <p>dont interact with me im evil. i have bad social anxiety and am usually offtab so dont expect responses </p>
-<p> @scribblekitteh43 and @rivethead22 hurt me every day and cause me physical pain </p>
 
 <a href="https://rubyda-alien.straw.page/">strawpage meeee!!!!</a> 
 
