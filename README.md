@@ -5,7 +5,7 @@
 <p><b>ruby / she/it </b></p>
 
 <p>dont interact with me im evil. i have bad social anxiety and am usually offtab so dont expect responses </p>
-<p style="color:#b50922;">DRAW ME SOMETHING ON MY STRAWPAGEEE!!</p>
+<a href="https://rubyda-alien.straw.page">strawpage meeee!!!!</a>
 
 <img src="https://files.catbox.moe/06khx4.gif"></img> <img src="https://files.catbox.moe/ao5g3e.png"></img> <img src="https://files.catbox.moe/211f5l.gif"></img>
 
