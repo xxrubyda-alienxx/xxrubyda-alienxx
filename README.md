@@ -1,6 +1,6 @@
-<img src="https://files.catbox.moe/h6ii1l.png"></img> 
+<img src="https://files.catbox.moe/bfz51i.png"></img> 
 
- ![](https://komarev.com/ghpvc/?username=xxrubyda-alienxx&style=plastic&color=70101e)
+ ![](https://komarev.com/ghpvc/?username=xxrubyda-alienxx&style=plastic&color=b50922)
 
 <p><b>ruby / she/it </b></p>
 
