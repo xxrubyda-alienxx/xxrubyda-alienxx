@@ -2,7 +2,7 @@
 
  ![](https://komarev.com/ghpvc/?username=xxrubyda-alienxx&style=plastic&color=b50922)
 
-<p><b>ruby / she/it </b></p>
+<p><b>ruby / <a href="https://pronouns.cc/@rubyda-alien">she/it</a></b></p>
 
 <p>dont interact with me im evil. i have bad social anxiety and am usually offtab so dont expect responses </p>
 
