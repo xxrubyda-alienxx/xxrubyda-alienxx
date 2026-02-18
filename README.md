@@ -1,6 +1,6 @@
 <img src="https://files.catbox.moe/tpo6ce.png"></img> 
 
- ![](https://komarev.com/ghpvc/?username=xxrubyda-alienxx&style=plastic&color=b50922)
+ ![](https://komarev.com/ghpvc/?username=xxrubyda-alienxx&style=plastic&color=fc6203)
 
 <p><b>ruby / <a href="https://pronouns.cc/@rubyda-alien">she/it</a></b></p>
 
