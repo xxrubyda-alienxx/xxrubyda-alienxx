@@ -9,7 +9,7 @@
 <a href="https://rubyda-alien.straw.page">strawpage meeee!!!!</a>
 
 
-<img src="https://files.catbox.moe/06khx4.gif"></img> <img src="https://files.catbox.moe/ao5g3e.png"></img> <img src="https://files.catbox.moe/211f5l.gif"></img>
+<img src="https://gifcity.carrd.co/assets/images/gallery52/c9f19418.gif?v=49efbe4c"></img> <img src="https://files.catbox.moe/vqddm8.gif"></img> <img src="https://gifcity.carrd.co/assets/images/gallery238/746935df.png?v=49efbe4c"></img>
 
 <a href="https://x.com/UD_ming/status/1956080376755134930/photo/1">pfp source</a>
 <a href="https://x.com/gionaqiaonai/status/1880770873411682499" style="font size: 5px;">img source</a>
